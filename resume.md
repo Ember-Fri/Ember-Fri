@@ -1,0 +1,1 @@
+My name is Amber! I'm a first year computer science student here at northeastern and I can't wait to build something awesome!
